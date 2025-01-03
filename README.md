@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @Falconesskook
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning
+- 👋 Hi, I’m Shaheena khatoon
+- 👀 I’m interested in Digital marketing
+- 🌱 I’m currently learning How to establish ai experts online presence.
